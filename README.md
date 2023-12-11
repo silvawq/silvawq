@@ -7,5 +7,10 @@ Meu nome é Icaro Matheus
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você entrar em contato comigo 📫
+
 icaro.afonso@escola.pr.gov.br
+
 isilvawq7@gmail.com
+
+
+https://media1.tenor.com/m/COM78THbePQAAAAd/neymar.gif
